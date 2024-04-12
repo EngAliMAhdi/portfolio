@@ -10,5 +10,5 @@
 
 💙 Join the channel to see more videos like this. [Ali Mahdi](https://www.youtube.com/@Eng.AliMahdi)
 
-![1 img](/1.png)
+![1 img](/1.PNG)
 
